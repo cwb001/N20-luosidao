@@ -17,4 +17,4 @@
 ![bAzJ0VcKBhXANRKnp7egdkhxbsTwRYxqm1FqcWTp](https://user-images.githubusercontent.com/82665059/190846544-32d094c8-7645-4a8a-91fb-bad65f79d301.jpg)
 ## **管体和管帽用烙铁烫出相应的洞和孔就可以使用啦**
 ### 演示视频
-https://oshwhub.com/attachments/2022/9/dnT8eAkd1zMinv98jRwuhVxUaH4jX998EtYauB0i.mp4)
+[![Watch the video](https://image.lceda.cn/pullimage/ZtFL0dpGMoqUFlEqKuM4XGkzBHDVDG8MHD44AQMo.jpeg)](https://oshwhub.com/attachments/2022/9/dnT8eAkd1zMinv98jRwuhVxUaH4jX998EtYauB0i.mp4)
